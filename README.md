@@ -1,1 +1,1 @@
-The original was stolen and later posted on their own account because I tried collaborating with them. I don't know why somebody would steal a shitpost but whatever. 
+It replaces every instance of Kanye in Kanye West's song "I love Kanye".
