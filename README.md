@@ -1,1 +1,1 @@
-It replaces every instance of Kanye in Kanye West's song "I love Kanye".
+It replaces every instance of Kanye in his song "I Love Kanye". It creates an audio file of text as well!
